@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **https://twitter.com/AmlanjyotiSaho5**
 
-- ⚡ Fun fact **I like to read fun facts**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
